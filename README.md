@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **sn.satyam2014@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1iQYwD04J2TmP0nEOo4vz9jVzFutrEk-r/view?usp=sharing](https://drive.google.com/file/d/10eEEzcgKywnEBU-MeuYHlWbLz6osNrO8/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1iQYwD04J2TmP0nEOo4vz9jVzFutrEk-r/view?usp=sharing](https://drive.google.com/file/d/1iQYwD04J2TmP0nEOo4vz9jVzFutrEk-r/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
